@@ -36,4 +36,7 @@ https://www.amazon.com/608-2RS-Skateboard-Bearing-Rolling-bearings/dp/B073ST742Z
 2x 20 tooth GT2 pulley, 5mm bore:
 https://www.amazon.com/3Dman-Pulley-Timing-Aluminum-Printer/dp/B085XLRXS1
 
+2x resin bottles, no bigger than 90x90mm and 220mm tall, about 1 liter:
+https://www.amazon.com/Othmro-Plastic-Storage-Container-Translucent/dp/B0828G27TH?th=1
+
 M3 hardware
